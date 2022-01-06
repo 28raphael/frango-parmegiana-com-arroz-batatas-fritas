@@ -1,0 +1,1 @@
+os incredientes são: File de frango, mussarela, molho de tomate, farinha de rosca de pão italiano, ovos, farinha de trigo, arroz e batata frita 

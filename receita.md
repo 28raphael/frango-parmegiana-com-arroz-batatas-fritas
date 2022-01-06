@@ -1,0 +1,1 @@
+a receita é nada mais nada menos que arroz com frango parmegiana é batas fritas 
